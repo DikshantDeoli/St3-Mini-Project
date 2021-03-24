@@ -1,1 +1,0 @@
-# St3-Mini-Project
